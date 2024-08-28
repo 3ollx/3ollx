@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @3ollx
+- 👀 I’m interested in ...
+- 🌱 I’m currently learnin vietnmese..
+- 😄 Pronouns: he/they
+- ⚡ Fun fact: i'm trans (ftm)
